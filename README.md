@@ -1,0 +1,1 @@
+# scarping_capfriendly
